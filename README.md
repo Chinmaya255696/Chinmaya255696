@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Chinmaya255696?tab=repositories](https://github.com/Chinmaya255696?tab=repositories)
 
-- 📫 How to reach me **chinmayasahoo@gmail.com**
+- 📫 How to reach me **chinmayasahoo.v@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
